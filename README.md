@@ -1,2 +1,3 @@
 - 👋 Hi! I'm Sapphire1525.
 - 🔗 I'm curently learning HTML and CSS.
+- 😀 Well, i have nothing else to say. Just a regular human.
